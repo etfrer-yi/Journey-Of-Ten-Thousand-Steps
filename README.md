@@ -11,3 +11,4 @@ And this will document my process for finding the answers to these 2 questions.
 ## "The road to hell is paved by ten thousand individual steps. But so is the road to heaven.
 - Believe in humanity.
 - Obey the laws of the world.
+- The world as a game.
