@@ -12,3 +12,4 @@ And this will document my process for finding the answers to these 2 questions.
 - Believe in humanity.
 - Obey the laws of the world.
 - The world as a game.
+- Don't dwell on past mistakes.
