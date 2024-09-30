@@ -13,3 +13,4 @@ And this will document my process for finding the answers to these 2 questions.
 - Obey the laws of the world.
 - The world as a game.
 - Don't dwell on past mistakes.
+- It is humans who choose to believe in God. And that choice has the spark of divinity in it.
