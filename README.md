@@ -18,4 +18,4 @@ And this will document my process for finding the answers to these 2 questions.
 ## Quotes
 - "˹Remember˺ when your Lord said to the angels, “I am going to place a successive ˹human˺ authority on earth.” They asked ˹Allah˺, “Will You place in it someone who will spread corruption there and shed blood while we glorify Your praises and proclaim Your holiness?” Allah responded, “I know what you do not know.”" - Quran 2:30
 - "The road to hell is paved by ten thousand individual steps. But so is the road to heaven."
-- "We're weak, but by accepting weakness we can build strength."
+- "We're weak, but by accepting weakness we can build strength." -RPW
