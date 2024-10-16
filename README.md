@@ -22,3 +22,6 @@ And this will document my process for finding the answers to these 2 questions.
 - "We're weak, but by accepting weakness we can build strength." -RPW
 - "A snake that does not shed its skin perishes."
 - "If it works, it works." - Millions of programmers, probably
+
+## Reflections
+I am just a mortal, really. That is all I am. Regrets, sadness, pain - all of it will be washed away on the shores of eternity. I am weak, full of flaws and imperfections. And as a simple person without power, I would like to control my mind.
