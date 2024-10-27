@@ -30,6 +30,7 @@ panicking and impatience will not help him to regain missed opportunities, and w
 take away things he dislikes. Whatever is decreed and is qada’ wa qadr cannot be
 prevented from happening, and whatever is decreed not to happen cannot be made to
 happen. So an attitude of impatience and panic actually causes harm.
+- "All life is problem solving" - Karl Popper,
 
   A wise man said: “A man with wisdom as soon as adversity appears does that which a
 foolish man does after a month (i.e. he resorts to patience).”
