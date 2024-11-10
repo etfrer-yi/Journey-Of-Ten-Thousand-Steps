@@ -34,7 +34,7 @@ happen. So an attitude of impatience and panic actually causes harm.
 - "All life is problem solving" - Karl Popper
 - It is not judgment that we fear, but rather the fact that it is hard to respond.
 
-  A wise man said: “A man with wisdom as soon as adversity appears does that which a
+- A wise man said: “A man with wisdom as soon as adversity appears does that which a
 foolish man does after a month (i.e. he resorts to patience).”
 
   The ignoble man exercises patience only when he realizes he has no choice. After
