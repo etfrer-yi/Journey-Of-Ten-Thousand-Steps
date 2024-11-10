@@ -15,6 +15,7 @@ And this will document my process for finding the answers to these 2 questions.
 - Don't dwell on past mistakes.
 - It is humans who choose to believe in God. And that choice has the spark of divinity in it.
 - Praxeology, not truth.
+- The power of the peasant, not the child-of-prophecy power.
 
 ## Quotes
 - "˹Remember˺ when your Lord said to the angels, “I am going to place a successive ˹human˺ authority on earth.” They asked ˹Allah˺, “Will You place in it someone who will spread corruption there and shed blood while we glorify Your praises and proclaim Your holiness?” Allah responded, “I know what you do not know.”" - Quran 2:30
