@@ -33,6 +33,7 @@ prevented from happening, and whatever is decreed not to happen cannot be made t
 happen. So an attitude of impatience and panic actually causes harm.
 - "All life is problem solving" - Karl Popper
 - It is not judgment that we fear, but rather the fact that it is hard to respond.
+- "your kingdom come, your will be done, on earth as it is in heaven." - Matthew 6:10, NIV
 
 - A wise man said: “A man with wisdom as soon as adversity appears does that which a
 foolish man does after a month (i.e. he resorts to patience).”
