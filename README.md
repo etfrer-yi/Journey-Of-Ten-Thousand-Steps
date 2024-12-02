@@ -19,6 +19,8 @@ And this will document my process for finding the answers to these 2 questions.
 - A mortal struggling against the infinite.
 - I will die one day.
 - Everyone will die one day. Earth will no longer be, one day.
+- Rejection of blame and praise.
+- Arbitrariness, luck. Farce, joke.
 
 ## Quotes
 - "˹Remember˺ when your Lord said to the angels, “I am going to place a successive ˹human˺ authority on earth.” They asked ˹Allah˺, “Will You place in it someone who will spread corruption there and shed blood while we glorify Your praises and proclaim Your holiness?” Allah responded, “I know what you do not know.”" - Quran 2:30
