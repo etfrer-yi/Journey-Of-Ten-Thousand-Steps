@@ -21,6 +21,7 @@ And this will document my process for finding the answers to these 2 questions.
 - Everyone will die one day. Earth will no longer be, one day.
 - Rejection of blame and praise.
 - Arbitrariness, luck. Farce, joke.
+- The gift of life is the correlation between actions and fruit.
 
 ## Quotes
 - "˹Remember˺ when your Lord said to the angels, “I am going to place a successive ˹human˺ authority on earth.” They asked ˹Allah˺, “Will You place in it someone who will spread corruption there and shed blood while we glorify Your praises and proclaim Your holiness?” Allah responded, “I know what you do not know.”" - Quran 2:30
