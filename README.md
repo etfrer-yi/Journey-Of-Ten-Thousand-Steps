@@ -35,6 +35,7 @@ And this will document my process for finding the answers to these 2 questions.
 - "Until you make the unconscious conscious, it will rule your life and you will call it fate." - NOT Carl Jung, but attributed to him
 - A wise man said: “A man with wisdom as soon as adversity appears does that which a
 foolish man does after a month (i.e. he resorts to patience).”
+- "Whatever you do, work at it with all your heart, as working for the Lord, not for human masters" - Colossians 3:23
 
   The ignoble man exercises patience only when he realizes he has no choice. After
 wasting a lot of time and energy and panicking and struggling, he realizes that his
